@@ -3,6 +3,8 @@
 - !Pony Town peeps!
 - If you're reading this then Hi! Welcome! Let's lay down some basic stuff on the table. If I do not know you, please do not:
 - ! Sit by me, stand on me, Say suggestive things to me, Kiss me unless asking, Flirt with me. You will be HIDDEN if you do so.!
+- !BYI!
+- I have very crude internet humor, including saying slurs I can reclaim. If this at all makes you uncomfortable then please don't int.
 - Of course, if you want to talk to me say Hi! I'm very anti-social online so please come up to me.
 - 🟢: I'm available to talk too! Don't be shy :3
 - ⛔: I'm off tab or doing something else, please don't bother.
