@@ -10,7 +10,7 @@
 - ⛔: I'm off tab or doing something else, please don't bother.
 - 🌙: I'm here! But just wanting to sit around, only friends may talk to me.
 - !DNI!
-- Proshipper, Trump Supporter, Conservative, Offensive in general, Bro Strider liker/apologist, Stridercest Shipper (Incest in general), Hazbin/Helluva fans.
+- Proshipper, Trump Supporter, Conservative, Offensive in general, Bro Strider liker/apologist, Stridercest Shipper (Incest in general), Hazbin/Helluva fans, DSMP fans.
 - Dancestor X Descendant, Ancestor X Dancestor, etc. ZaDr or any IrkenXChild shipper. Under 16, Over 19.
 ! SHIPS :3 !
 - HOMESTUCK:
