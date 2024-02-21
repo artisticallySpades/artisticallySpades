@@ -13,12 +13,12 @@
 - Proshipper, Trump Supporter, Conservative, Offensive in general, Bro Strider liker/apologist, Stridercest Shipper (Incest in general), Hazbin/Helluva fans.
 - Dancestor X Descendant, Ancestor X Dancestor, etc. ZaDr or any IrkenXChild shipper. Under 16, Over 19.
 ! SHIPS :3 !
-HOMESTUCK:
-JohnDave, JohnKat, DaveJade, EquiDave, Rosemaryjade, Jadekat, DirkJohn, DirkUU, DirkJake, Janeroxycallie, GamTav, AraSol, FefNep, Dirkkri, MeenahxAranea,
-DC:
-Scriddler, Twiddlebat, BatJokes, TwoBats
-EDDSWORLD:
-All four of the main boys (Edd, Tom, Matt, Tord).
+- HOMESTUCK:
+- JohnDave, JohnKat, DaveJade, EquiDave, Rosemaryjade, Jadekat, DirkJohn, DirkUU, DirkJake, Janeroxycallie, GamTav, AraSol, FefNep, Dirkkri, MeenahxAranea,
+- DC:
+- Scriddler, Twiddlebat, BatJokes, TwoBats
+- EDDSWORLD:
+- All four of the main boys (Edd, Tom, Matt, Tord).
 <!---
 artisticallySpades/artisticallySpades is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
