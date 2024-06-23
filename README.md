@@ -12,7 +12,7 @@
 - !DNI!
 - Proshipper, Trump Supporter, Conservative, Offensive in general, Bro Strider liker/apologist, Stridercest Shipper (Incest in general), Hazbin/Helluva fans, DSMP fans.
 - Dancestor X Descendant, Ancestor X Dancestor, etc. ZaDr or any IrkenXChild shipper. Under 16, Over 19.
-! SHIPS :3 !
+- !SHIPS :3!
 - HOMESTUCK:
 - JohnDave, JohnKat, DaveJade, EquiDave, Rosemaryjade, Jadekat, DirkJohn, DirkUU, DirkJake, Janeroxycallie, GamTav, AraSol, FefNep, Dirkkri, MeenahxAranea,
 - DC:
