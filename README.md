@@ -1,4 +1,4 @@
-- (16+) ♠️ Hi, I’m Spades! (She/Her) https://spadesthorned.carrd.co/
+- (17+) ♠️ Hi, I’m Spades! (She/Her) https://spadesthorned.carrd.co/
 - I'm a transgender artist and gamer who's very multifandom! 
 - !Pony Town peeps!
 - If you're reading this then Hi! Welcome! Let's lay down some basic stuff on the table. If I do not know you, please do not:
